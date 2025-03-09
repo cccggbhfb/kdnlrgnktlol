@@ -1,2 +1,1 @@
-# kdnlrgnktlol
-Kadınlar Gününüz Kutlu Olsun 
+Beceriksizler
